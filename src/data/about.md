@@ -21,6 +21,7 @@ Now I'm quite in between things. I could choose to continue my research in recom
 
 At last I want to express the most sincere gratitude to my parents, Cuiying Zhang(张翠英) and Xilin Ren(任喜林) again. Thanks for your unconditional love and belief in me. I'll always treasure you! Although you guys are not perfect, as every human being, I think you have done your best to offer me the best and I cannot expect better parents than you guys.  最后我想再一次向我的父母（张翠英和任喜林）表达我最诚挚的感谢。谢谢你们对我无条件的爱和信任。我会一直珍惜你们。即使你们并不完美，世上也并没有完美的人，我觉得你们已经尽你们所能给予了我最好的东西，我想象不到能有比你们更优秀的父母了。
 
+Stories of my PhD career are still to be continued. I'll update this page when I have more to say. Thanks for reading!
 
 
 
